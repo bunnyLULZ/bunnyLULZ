@@ -17,7 +17,7 @@
 <sup> sᴘᴇᴄɪᴀʟ ᴍᴇɴᴛɪᴏɴ :-) </sup>
 
 <p align="center"> 
-𑣲 ⸝⸝ <a href= "https://github.com/iTrapped2012"> 𝓜ICHALE HI TWIN </a>ㅤ₍ᐢ.  ̫  .ᐢ₎ㅤ<a href= "https://github.com/gutbuckett">𝓖OURMANDHI BRO</a>ㅤ₍ᐢ.  ̫  .ᐢ₎ㅤ<a href= "https://github.com/gutbuckett">𝓙ACK HI </a>󠀠ㅤ 󠀠󠀠󠁩₍ᐢ.  ̫  .ᐢ₎ㅤ<a href= "happycomputerdrive"> 𝓐NGEL HI FATTIE </a> ⸝⸝
+𑣲 ⸝⸝ <a href= "https://github.com/iTrapped2012"> 𝓜ICHALE HI TWIN </a>ㅤ₍ᐢ.  ̫  .ᐢ₎ㅤ<a href= "https://github.com/gutbuckett">𝓖OURMANDHI BRO</a>ㅤ₍ᐢ.  ̫  .ᐢ₎ㅤ<a href= "https://github.com/voxcest">𝓙ACK HI </a>󠀠ㅤ 󠀠󠀠󠁩₍ᐢ.  ̫  .ᐢ₎ㅤ<a href= "https://github.com/happycomputerdrive"> 𝓐NGEL HI FATTIE </a> ⸝⸝
 
 </p>
 </p>
